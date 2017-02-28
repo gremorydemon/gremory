@@ -1,0 +1,2 @@
+# gremory
+bahala kayo
